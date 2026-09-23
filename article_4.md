@@ -1,6 +1,6 @@
 ## Recreational
 
-![Preeti's Artwork](Myartwork.jpg)
+![Preeti's Artwork](Myartwork1.jpg)
 
 - I'm a state-level swimmer
 - Henna started as a creative hobby at home when I was a child, and I've grown it into a side profession doing henna for clients in my free time
