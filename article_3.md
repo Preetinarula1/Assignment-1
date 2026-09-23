@@ -1,6 +1,6 @@
 ## Professional
 
-![]()
+![Preeti's Photo taken by Sachin](Preeti.jpg)
 
 - I've worked as a web designer for 2 years after completing online certifications
 - I found my interest in UX/UI design, which led me to choose this university for my BDes
